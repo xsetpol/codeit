@@ -1,2 +1,2 @@
 # heheboi
-Being noob coder is better than being fake developer.
+Me is Noob, 
